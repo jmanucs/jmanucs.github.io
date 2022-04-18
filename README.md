@@ -1,1 +1,0 @@
-# jmanucs.github.io
